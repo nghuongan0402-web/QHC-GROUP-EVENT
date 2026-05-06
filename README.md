@@ -1,1 +1,0 @@
-# QHC-GROUP-EVENT
